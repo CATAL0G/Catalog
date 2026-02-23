@@ -12,4 +12,4 @@ team akuta :))
 (found family ugghh)
 
 
-<br/><sub>[ATABOOK](https://kindatired.atabook.org/)  [  .  ➷  .  ](https://github.com/bloodyhell0)          [STRAWPAGE](https://httpsjabberwongerstrawpage.straw.page)</sub>
+<br/><sub>[ATABOOK](https://kindatired.atabook.org/)  [  .  .  ](https://github.com/bloodyhell0)          [STRAWPAGE](https://httpscatalogstrawpage.straw.page)</sub>
