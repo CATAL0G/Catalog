@@ -4,7 +4,7 @@
 
 
 <br/><div align="center">
-  <img src="https://img.sanishtech.com/u/5372e17c46ef7340f8cad166b0c2aad3.gif">
+  <img src="https://img.sanishtech.com/u/01604aa0a3634b6f266fad120a036428.gif">
 </div>
 
 <div align="center">
