@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://img.sanishtech.com/u/1991780094af186963a33f1f2b4c9cba.gif">
+  <img src="https://img.sanishtech.com/u/5372e17c46ef7340f8cad166b0c2aad3.gif">
 </div>
 
 
