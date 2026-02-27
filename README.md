@@ -5,9 +5,9 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=007383&style=flat&label=୨୧&abbreviated=true) 
 
-
+<br/><div align="center">
 <img src="https://img.sanishtech.com/u/038e806e2d16f2f6ad57f14293cd9130.png">
-
+</div>
 
 janka
 
