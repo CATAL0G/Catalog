@@ -12,7 +12,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=38b1c4&style=flat&label=✚&abbreviated=true)
 
 <br/><div align="center">
-  <img src="https://img.sanishtech.com/u/038e806e2d16f2f6ad57f14293cd9130.png">
+  <img src="https://img.sanishtech.com/u/5b860ac921e734035cc1d58452832fc6.png">
   
 <br/><sub>[ATABOOK](kindatired.atabook.org)  [.](https://github.com/Bloodyhell0)          [STRAWPAGE](https://httpszankanijikustrawpage.straw.page)</sub>
 </div>
