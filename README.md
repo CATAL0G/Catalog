@@ -1,10 +1,10 @@
 <div align="center">
-  <img src="https://img.sanishtech.com/u/5372e17c46ef7340f8cad166b0c2aad3.gif">
+  <img src="https://img.sanishtech.com/u/1f879aae6e309c451bf2a4ced9cba588.png">
 </div>
 
 
 <br/><div align="center">
-  <img src="https://img.sanishtech.com/u/1f879aae6e309c451bf2a4ced9cba588.png">
+  <img src="https://img.sanishtech.com/u/5372e17c46ef7340f8cad166b0c2aad3.gif">
 </div>
 
 <div align="center">
@@ -13,8 +13,7 @@
 
 <br/><div align="center">
   <img src="https://img.sanishtech.com/u/038e806e2d16f2f6ad57f14293cd9130.png">
-</div>
-
+  
 <br/><sub>[ATABOOK](kindatired.atabook.org)  [.](https://github.com/Bloodyhell0)          [STRAWPAGE](https://httpszankanijikustrawpage.straw.page)</sub>
 </div>
 
