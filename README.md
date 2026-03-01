@@ -7,6 +7,8 @@
   <img src="https://img.sanishtech.com/u/743f6b084f2fdaa25e3e15595395d2da.jpg">
 </div>
 
+the red means I LOVE u .[🪫].
+
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=38b1c4&style=flat&label=✚&abbreviated=true)
@@ -14,8 +16,10 @@
 <br/><div align="center">
   <img src="https://img.sanishtech.com/u/5b860ac921e734035cc1d58452832fc6.png">
   
-<br/><sub>[ATABOOK](kindatired.atabook.org)  [.](https://github.com/Bloodyhell0)          [STRAWPAGE](https://httpszankanijikustrawpage.straw.page)</sub>
+<br/><sub>[ATABOOK](kindatired.atabook.org)  [MENTAL ISSUES](https://httpsmentalissuesstrawpage.straw.page)          [STRAWPAGE](https://httpszankanijikustrawpage.straw.page)</sub>
 </div>
+
+please read my mental issues so you can understand me:) 
 
 <br/><div align="center">
   <img src="https://img.sanishtech.com/u/b8e80b60d18e39fb23606b56d6e69c8e.png">
