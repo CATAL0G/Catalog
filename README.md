@@ -31,13 +31,13 @@ look at my son bro ain't he so adorable
 
 
   <div align="center">
-  <img src="https://img.sanishtech.com/u/da7d4e67eee1f3c68adc92840d8eec44.gif"</div>
-
-
-
-  <div align="center">
   <img src="https://img.sanishtech.com/u/e32628844ac1fe64664c5ed66b106666.png"</div>
 
 LOOK AT THEM🥹🥹
+
+
+  <div align="center">
+  <img src="https://img.sanishtech.com/u/da7d4e67eee1f3c68adc92840d8eec44.gif"</div>
+
  
 
