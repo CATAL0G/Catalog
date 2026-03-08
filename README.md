@@ -13,7 +13,7 @@
   janka 🫶
   
   
-<br/><sub>[ATABOOK](kindatired.atabook.org)  🦝         [STRAWPAGE](https://httpssmthstrawpage.straw.page)</sub>
+<br/><sub>[ATABOOK](https://kindatired.atabook.org/)  🦝         [STRAWPAGE](https://httpssmthstrawpage.straw.page)</sub>
 </div>
  
 
