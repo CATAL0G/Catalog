@@ -18,10 +18,6 @@ sign ata oke?
 
 <br/><div align="center">
 
-</div>
-<img src="https://img.sanishtech.com/u/43d03de59b97adc9304928ecc7868fed.png">
-
-aww little bebeh
 
 
 
