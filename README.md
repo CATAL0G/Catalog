@@ -9,14 +9,19 @@
 
 <br/><div align="center">
 
-Portgas d ace
+little gremlin
 
 sign ata oke?
 
 </div>
-<img src="https://img.sanishtech.com/u/e231750ba725c6ea0de36b61fd77c549.png">
+<img src="https://img.sanishtech.com/u/ba3b5f266fc13c0fd13fcfb66e586c71.png">
 
-burps
+<br/><div align="center">
+
+</div>
+<img src="https://img.sanishtech.com/u/43d03de59b97adc9304928ecc7868fed.png">
+
+aww little bebeh
 
 
 
