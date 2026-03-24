@@ -5,9 +5,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=b5563a&style=flat&label=❤‍🔥&abbreviated=true)
-
-<br/><div align="center">
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=b5563a&style=flat&label=birdies&abbreviated=true)
 
 hawk-eye dracule mihawk
 
