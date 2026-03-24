@@ -9,12 +9,12 @@
 
 <br/><div align="center">
 
-little gremlin
+hawk-eye dracule mihawk
 
 sign ata oke?
 
 </div>
-<img src="https://img.sanishtech.com/u/ba3b5f266fc13c0fd13fcfb66e586c71.png">
+<img src="https://img.sanishtech.com/u/9f069ff21e5e9d2eb6826bdb22f19768.gif">
 
 <br/><div align="center">
 
