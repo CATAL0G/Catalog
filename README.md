@@ -11,7 +11,7 @@
 <img src="https://img.sanishtech.com/u/a652e347466150e44c7772739632db32.gif">
 
 <br/><div align="center">
-jess   minor
+jess
 
 i do have dni but i'll make strawpage sooner
 
