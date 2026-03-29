@@ -13,7 +13,7 @@
 <br/><div align="center">
 jess
 
-i do have dni but i'll make strawpage sooner
+DONE MAKIN STRAWPAGE WOO
 
 INTJ     often afk(semi-afk)
 
