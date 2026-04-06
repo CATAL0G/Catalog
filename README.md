@@ -5,16 +5,15 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=b5563a&style=flat&label=birdies&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=b5563a&style=flat&label=🧣&abbreviated=true)
 
 </div>
 
 <br><div align="center">
-<img src="https://img.sanishtech.com/u/00ae057530ccbb7886e5c8af73af9f06.png">
+<img src="https://img.sanishtech.com/u/df63860147b14f0d157c40493408ad70.jpg">
 
-art made by me! 
+( 😨 ) 
 
-do not repost
 
 SIGN ATA / STRAW NOW  ! 
 
