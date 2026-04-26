@@ -6,7 +6,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=a2601dstyle=flat&label=goodmorning&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=52531cstyle=flat&label=goodmorning&abbreviated=true)
 
 <br/><div align="center">
   <img src="https://img.sanishtech.com/u/1666d3238320d29ea73aebdb2e74d1cb.png">
