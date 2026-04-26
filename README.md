@@ -4,9 +4,16 @@
   <img src="https://img.sanishtech.com/u/1666d3238320d29ea73aebdb2e74d1cb.png">
 </div>
 
+<br/><div align="center">
+
+
 <img src="https://img.sanishtech.com/u/32bba680e4a85d5d0c04e6bde712ca34.png">
 
-<br/><sub>[ATABOOK](kindatired.atabook.org)            [STRAWPAGE] SOON
+
+
+SIGN ATA OKE? OKE... 
+
+
 </div>
 
 <br/><div align="center">
