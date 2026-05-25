@@ -7,7 +7,7 @@
 
 </div>
 
-<br/><sub>[ATABOOK](kindatired.atabook.org)            [STRAWPAGE] SOON
+<br/><sub>[ATABOOK](kindatired.atabook.org)<br/><sub>          [STRAWPAGE] SOON
 </div>
 
 
