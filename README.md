@@ -3,6 +3,9 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=5e805c&style=flat&label=👒&abbreviated=true) 
 
 
+.  “  我为什么要制定规则     ？                     每个人都应该享有自由   ！    ”
+
+
 <br/><div align="center">
   <img src="https://img.sanishtech.com/u/fc720a9cd17de2aed65380482131d3ac.png">
 </div>
