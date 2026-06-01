@@ -34,6 +34,8 @@ problematics, pinterest skins, copier skins, pedophile, etc.
 
 shanks , luffy , 007n7 , qifrey , enjin , rudo , portgas d ace + more
 
+(for oomfs will mention in sp (wip) ) 
+
 thats it oke? oke. Bye bye
 
 
