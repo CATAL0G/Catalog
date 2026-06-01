@@ -9,7 +9,7 @@
 
 </div>
 
-    <br/><sub>[ATABOOK]     (kindatired.atabook.org)
+<br/><sub>[ATABOOK]     (kindatired.atabook.org)
 
 </div>
 
