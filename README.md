@@ -32,7 +32,7 @@ problematics, pinterest skins, copier skins, pedophile, etc.
 
 . heavy f/o or fictkin :
 
-shanks , luffy , 007n7 , qifrey , geto suguru , portgas d ace + more
+shanks , luffy , 007n7 , qifrey , enjin , rudo , portgas d ace + more
 
 thats it oke? oke. Bye bye
 
