@@ -1,6 +1,6 @@
 </div>
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=a2601dstyle=flat&label=👒&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=a2601d&style=flat&label=👒&abbreviated=true) 
 
 
 <br/><div align="center">
