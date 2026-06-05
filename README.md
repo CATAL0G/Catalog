@@ -18,4 +18,9 @@ c + h always !
 <br/><div align="center"> <img src="https://img.sanishtech.com/u/e07e91867e71b8bdaeda8cfcf7fc1204.gif">
 
 
+please, do not copy my skins or my styles 🙏
+
+c+h is allowed when its not on my name ☺
+
+
 
