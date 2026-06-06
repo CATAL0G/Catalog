@@ -8,17 +8,14 @@
 
 </div>
 
-c + h always ! 
-
 </div>
 
 <br/><sub>[ATABOOK](kindatired.atabook.org)
 
 </div>
 
-please, do not copy my skins or my styles 🙏
-
-c+h is allowed when its not on my name ☺
+<br/><div align="center">
+<img src="https://img.sanishtech.com/u/915d9a374bd3b39524643d78e497e056.png">
 
 
 
