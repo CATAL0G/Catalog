@@ -4,7 +4,8 @@
 
 
 <br/><div align="center">
-  <img src="https://img.sanishtech.com/u/329f3d4b9d714c83b718bc91704bd5e0.png">
+  <img src="https://img.sanishtech.com/u/e07e91867e71b8bdaeda8cfcf7fc1204.gif">
+
 </div>
 
 c + h always ! 
@@ -12,10 +13,6 @@ c + h always !
 </div>
 
 <br/><sub>[ATABOOK](kindatired.atabook.org)
-
-</div>
-
-<br/><div align="center"> <img src="https://img.sanishtech.com/u/e07e91867e71b8bdaeda8cfcf7fc1204.gif">
 
 
 please, do not copy my skins or my styles 🙏
