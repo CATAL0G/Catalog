@@ -14,6 +14,7 @@ c + h always !
 
 <br/><sub>[ATABOOK](kindatired.atabook.org)
 
+</div>
 
 please, do not copy my skins or my styles 🙏
 
