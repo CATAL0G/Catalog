@@ -33,5 +33,8 @@
    -  c+h are welcome when its not on my Name. 
 
 
+    - please, do not copy my skins/my style. 
+
+
 
 
