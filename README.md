@@ -17,6 +17,10 @@
 <br/><div align="center">
 <img src="https://img.sanishtech.com/u/647bf73d5486551a0b530972ab7e90f4.jpg">
 
+</div>
+
+
+
     -   hvy    dnis  :
    problematics, racist, darkshippers, proshippers, copier skins/style, pinterest skins, pedophile, + more  . 
 
