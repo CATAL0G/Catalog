@@ -4,7 +4,7 @@
 
 
 <br/><div align="center">
-  <img src="https://img.sanishtech.com/u/e07e91867e71b8bdaeda8cfcf7fc1204.gif">
+  <img src="https://img.sanishtech.com/u/4551456e017ce88a7e56576364a75c23.jpg">
 
 </div>
 
@@ -14,8 +14,6 @@
 
 </div>
 
-<br/><div align="center">
-<img src="https://img.sanishtech.com/u/915d9a374bd3b39524643d78e497e056.png">
 
 
 
