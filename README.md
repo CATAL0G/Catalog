@@ -10,7 +10,7 @@
 
 </div>
 
-<br/><sub>[ATABOOK](kindatired.atabook.org)
+<br/><sub>[ATABOOK](kindatired.atabook.org)[☀][STRAWPAGE](https://httpspeoplestrawpage.straw.page)
 
 </div>
 
