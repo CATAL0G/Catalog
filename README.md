@@ -18,21 +18,11 @@
 
 </div>
 
-         -   hvy    dnis  :
-   problematics, racist, darkshippers, proshippers, copier skins/style, pinterest skins, pedophile, + more  . 
+
+do not copy my skins/style.
 
 
-
-
-
-
-
-
-
-
-
-
-     do not copy my skins/style.
+heavy dnis that i have. 
 
 
 
