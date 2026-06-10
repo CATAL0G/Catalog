@@ -24,7 +24,15 @@
 
 
 
-    - please, do not copy my skins/my style. 
+
+
+
+
+
+
+
+
+     do not copy my skins/style.
 
 
 
