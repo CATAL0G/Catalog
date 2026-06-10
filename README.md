@@ -4,33 +4,24 @@
 
 <div/>
 
-   -    check sp before ints
-
 
 <br/><div align="center">
-  <img src="https://img.sanishtech.com/u/4551456e017ce88a7e56576364a75c23.jpg">
+  <img src="https://img.sanishtech.com/u/e3276726aea8187f343098760a7f635f.gif">
 
 </div>
 
 </div>
 
-<br/><sub>[ATABOOK](kindatired.atabook.org)[☀][STRAWPAGE](https://httpspeoplestrawpage.straw.page)
+<br/><sub>[ATABOOK](kindatired.atabook.org)    [STRAWPAGE](https://httpspeoplestrawpage.straw.page)
 
 </div>
 
-<br/><div align="center">
-<img src="https://img.sanishtech.com/u/647bf73d5486551a0b530972ab7e90f4.jpg">
-
 </div>
 
-
-
-    -   hvy    dnis  :
+         -   hvy    dnis  :
    problematics, racist, darkshippers, proshippers, copier skins/style, pinterest skins, pedophile, + more  . 
 
 
-
-   -  c+h are welcome when its not on my Name. 
 
 
     - please, do not copy my skins/my style. 
