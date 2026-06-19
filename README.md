@@ -9,12 +9,6 @@
 
 <div/>
 
-<div/>
-
-<br/><div align="center">
-<img src="https://img.sanishtech.com/u/d7c1f4b1f762d1e481401fccf7ae30f3.gif">
-
-
 <br/><sub>[ATABOOK](kindatired.atabook.org)    [STRAWPAGE](https://httpspeoplestrawpage.straw.page)
 
 <div/>
