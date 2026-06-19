@@ -1,13 +1,18 @@
 </div>
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=A594DD&style=flat&label=🫀&abbreviated=true) 
+<br/><div align="center">
+<img src="https://img.sanishtech.com/u/a229528a027270d95138431e58d1d814.jpg">
+
+</div>
+
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=A594DD&style=flat&label=🍎&abbreviated=true) 
 
 <div/>
 
 <div/>
 
 <br/><div align="center">
-<img src="https://img.sanishtech.com/u/b91f1768f75c1f04fbc9f2438483278f.gif">
+<img src="https://img.sanishtech.com/u/d7c1f4b1f762d1e481401fccf7ae30f3.gif">
 
 
 <br/><sub>[ATABOOK](kindatired.atabook.org)    [STRAWPAGE](https://httpspeoplestrawpage.straw.page)
