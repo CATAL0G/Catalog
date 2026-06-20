@@ -1,6 +1,6 @@
 </div>
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=A594DD&style=flat&label=❄&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=A4C1D0&style=flat&label=❄&abbreviated=true) 
 
 <div/>
 
@@ -13,9 +13,12 @@
 
 <div/>
 
-heavy dnis basic that i have & do not copy my skins/style.
+    heavy dnis ;
+ problematic, racist, proshippers, darkshippers, homophobic, transphobic, pinterest skin, pick me, pedophile, under age 13 + more  . 
 
 <div/>
+
+  c+h are welcomed when its not on my name
 
 
 
