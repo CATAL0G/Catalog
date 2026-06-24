@@ -1,11 +1,11 @@
 </div>
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=A4C1D0&style=flat&label=❄&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=A4C1D0&style=flat&label=blegh&abbreviated=true) 
 
 <div/>
 
 <br/><div align="center">
-<img src="https://img.sanishtech.com/u/ec17d4c15aa6f9cbcb4a13dead0d5cd1.gif">
+<img src="https://img.sanishtech.com/u/044457424c662adce598e4c27ba445f5.png">
 
 <div/>
 
