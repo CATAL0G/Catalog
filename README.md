@@ -11,8 +11,8 @@
          aww so cute ♡
 
 
-<br/><sub>[𝙰𝚃𝙰𝙱𝙾𝙾𝙺]
-(https://kindatired.atabook.org)[𝚂𝚃𝚁𝙰𝚆𝙿𝙰𝙶𝙴](https://httpsmonkeydluffystrawpage.straw.page)</sub>
+<br/><sub>[ATABOOK]
+(https://kindatired.atabook.org)[STRAWPAGE](https://httpsmonkeydluffystrawpage.straw.page)</sub>
 
 </div>
 
