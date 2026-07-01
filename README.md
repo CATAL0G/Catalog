@@ -14,7 +14,11 @@
 
 </div>
 
- <br/><sub>[ATABOOK](https://kindatired.atabook.org)[.][STRAWPAGE](https://httpsmonkeydluffystrawpage.straw.page)</sub>
+ <br/><sub>[ATABOOK](https://kindatired.atabook.org)     
+
+    -
+
+[STRAWPAGE](https://httpsmonkeydluffystrawpage.straw.page)</sub>
 
 </div>
 
