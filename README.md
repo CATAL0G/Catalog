@@ -3,8 +3,6 @@
 <br/><div align="center">
 <img src="https://img.sanishtech.com/u/872fc7e12a53f5d6ee247cbfaa402146.png">
 
-</div>
-
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=7F0305&style=flat&label=blegh&abbreviated=true) 
 
 <br/><div align="center">
