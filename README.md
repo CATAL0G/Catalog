@@ -4,11 +4,8 @@
 
 </div>
 
-<br/><div align="center">
-<img src="https://img.sanishtech.com/u/fa66f9a95258db6c121a8808ea5c9fe4.webp">           
 
-
-aww so cute ♡
+wip again hahahahha oke
 
 
 <br/><sub>[ATABOOK](https://kindatired.atabook.org)[.][STRAWPAGE](https://httpsmonkeydluffystrawpage.straw.page)</sub>
