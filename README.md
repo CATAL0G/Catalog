@@ -12,7 +12,7 @@ silly boy
 
 [ATABOOK](https://kindatired.atabook.org)     
 
-- - - - - 🍶 - - - - - - - 👒 - - - - - - 
+- -  - 🍶 - - - - - 👒 - - - - - - 
 
 [STRAWPAGE](https://httpsmonkeydluffystrawpage.straw.page)</sub>
 
