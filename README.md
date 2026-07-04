@@ -9,9 +9,13 @@
 </br><div align="center">
 <img src="https://img.sanishtech.com/u/ece204d5661e94a119f2a700535e4ed9.png">
 
-dofuwani supermacy *drools
+𝚒 𝚕𝚘𝚟𝚎 𝚢𝚘𝚞 𝚍𝚘𝚏𝚞𝚠𝚊𝚗𝚒 𝚐𝚛𝚛
+
+- - -
 
 [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](kindatired.atabook.org) 
+
+𝚜𝚒𝚐𝚗 𝚊𝚝𝚊 𝚋𝚘𝚘𝚔
 
 
 
