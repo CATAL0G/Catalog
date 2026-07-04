@@ -18,6 +18,11 @@
 <div align="center">
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=F068B1&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=sign+ata+book+" alt="the heavenly demon">
 
+𝚌+𝚑 𝚊𝚛𝚎 𝚠𝚎𝚕𝚌𝚘𝚖𝚎𝚍 
+
+𝚍𝚘 𝚗𝚘𝚝 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜/𝚖𝚢 𝚜𝚝𝚢𝚕𝚎𝚜
+
+... 
 
 
 
