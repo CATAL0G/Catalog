@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&duration=3500&pause=2000&color=F068B1&center=true&vCenter=true&width=450&lines=do+fla+mingo,+The+heavenly+demon" alt="doflamingo">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&duration=3500&pause=2000&color=F068B1&center=true&vCenter=true&width=450&lines=doflamingo donquixote,+The+heavenly+demon" alt="doflamingo">
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=F068B1&style=flat&label=fufufu&abbreviated=true) 
 
