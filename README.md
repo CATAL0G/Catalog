@@ -1,22 +1,24 @@
 </div>
 
-<br/><div align="center">
-<img src="https://img.sanishtech.com/u/872fc7e12a53f5d6ee247cbfaa402146.png">
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=7F0305&style=flat&label=blegh&abbreviated=true) 
 
-<br/><div align="center">
-<img src="https://img.sanishtech.com/u/5966c1311aef1a3d4bac69a2324d12c6.png">
+</br><div align="center">
+<img src="https://img.sanishtech.com/u/973c5f2111c4d3d05f29abdeee7ab6ed.png">
 
-silly boy
+##### <p align="center"><a href="kindatired.atabook.org"><img src="https://img.sanishtech.com/u/6dbba59a5e4add194d39bcc0f2620259.png" width='80" height="auto"
 
-[ATABOOK](https://kindatired.atabook.org)     
+</br><div align="center">
+<img src="https://img.sanishtech.com/u/ece204d5661e94a119f2a700535e4ed9.png">
 
-🍶
+dofuwani supermacy *drools
 
-[STRAWPAGE](https://httpsmonkeydluffystrawpage.straw.page)</sub>
+</br><div align="center">
+<img src="https://img.sanishtech.com/u/6085997d535794adcd23777c544f0c6c.png">
 
-</div>
+sign ata & prob will remake strawpage
+
+
 
 
 
