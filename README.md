@@ -1,8 +1,7 @@
+<div align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&duration=3500&pause=2000&color=F068B1&center=true&vCenter=true&width=450&lines=do+fla+mingo,+The+heavenly+demon" alt="doflamingo">
 
-
-
-
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=7F0305&style=flat&label=blegh&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=F068B1&style=flat&label=fufufu&abbreviated=true) 
 
 </br><div align="center">
 <img src="https://img.sanishtech.com/u/973c5f2111c4d3d05f29abdeee7ab6ed.png">
