@@ -24,13 +24,14 @@
 
 ... 
 
-</br><div align="center">
-<img src="https://img.sanishtech.com/u/6087c988f3598000d632c5574404caad.png">
-
 <div align="center">
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=F068B1&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=heavy+dnis+" alt="the heavenly demon">
 
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=F068B1&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=problematic,+pickme,+racist,+homophobic,+transphobic,+pedophile+" alt="the heavenly demon">
+
+( + 𝚖𝚘𝚛𝚎 ) 
+
+---
 
 
 
