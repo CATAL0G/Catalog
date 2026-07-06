@@ -16,7 +16,7 @@
 [ꋬ꓄ꋬꃳꄲꄲꀘ](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="teethplush" src="https://img.sanishtech.com/u/323b8fc78fd37ee8f8430d6ba31cd9a1.png" /> &nbsp;&nbsp;&nbsp; [ꇙ꓄ꋪꋬꅐꉣꋬꍌꏂ](https://httpsidkstrawpage.straw.page)
 
 </br><div align="center">
-<img src="https://img.sanishtech.com/u/46e738a950628cc48a41b1879eae1382.jpg">
+<img src="https://img.sanishtech.com/u/35d69a2c09939fcbfb33bba7fb5f0bea.png">
 
 
 
