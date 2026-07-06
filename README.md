@@ -13,6 +13,7 @@
 
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=9F0A12&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=+saint+nerona+imu+" alt="darkness">
 
+[ꋬ꓄ꋬꃳꄲꄲꀘ](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="teethplush" src="https://img.sanishtech.com/u/323b8fc78fd37ee8f8430d6ba31cd9a1.png" /> &nbsp;&nbsp;&nbsp; [ꇙ꓄ꋪꋬꅐꉣꋬꍌꏂ](https://httpsidkstrawpage.straw.page)
 
 
 
