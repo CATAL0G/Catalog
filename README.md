@@ -8,7 +8,11 @@
 
 - - -
 
-[𝙰𝚝𝚊𝚋𝚘𝚘𝚔](kindatired.atabook.org) 
+</br><div align="center">
+<img src="https://img.sanishtech.com/u/dd663d49be38703e4e4062992e81acf3.jpg">
+
+
+
 
 
 
