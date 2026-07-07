@@ -3,10 +3,7 @@
 
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=9F0A12&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=+my+moon+,+my+man+" alt="moon">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=9F0A12&style=flat&label=truthless&abbreviated=true) 
-
-</br><div align="center">
-<img src="https://img.sanishtech.com/u/7890693b208a8bce16e44159c0706ec5.png">
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=👑&abbreviated=true) 
 
 </br><div align="center">
 <img src="https://img.sanishtech.com/u/5287f160e2a4223b61bfaed3f06d3705.png">
