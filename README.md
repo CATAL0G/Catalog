@@ -8,9 +8,13 @@
 </br><div align="center">
 <img src="https://img.sanishtech.com/u/7890693b208a8bce16e44159c0706ec5.png">
 
+</br><div align="center">
+<img src="https://img.sanishtech.com/u/5287f160e2a4223b61bfaed3f06d3705.png">
+
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=CB983F&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=+gold+and+silver+" alt="moon">
 
 [atabook](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="crownplush" src="https://img.sanishtech.com/u/883e259d3d359d1ae1fea9b4271aba83.png" /> &nbsp;&nbsp;&nbsp; [strawpage](https://httpsidkstrawpage.straw.page)
+
 [rentry](https://rentry.co/kindatired)
 
 
