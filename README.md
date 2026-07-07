@@ -14,6 +14,8 @@
 
 [rentry](https://rentry.co/kindatired)
 
+no copy skins allowed and even my styles
+
 
 
 
