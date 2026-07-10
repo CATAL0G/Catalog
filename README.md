@@ -1,6 +1,5 @@
 <div align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=THE+BIG+3+" alt="silver">
-
+<img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=THE+BIG+3+" alt="silver">
 </br><div align="center">
 <img src="https://img.sanishtech.com/u/38609b2e9e7a40ac84e71a25c585c801.png">
 
