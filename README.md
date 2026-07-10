@@ -8,7 +8,7 @@
 
 [atabook](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="crownplush" src="https://img.sanishtech.com/u/883e259d3d359d1ae1fea9b4271aba83.png" /> &nbsp;&nbsp;&nbsp; [strawpage](https://httpsidkstrawpage.straw.page)
 
-[rentry](https://rentry.co/kindatired)
+[rentry](https://rentry.co/kindatired_)
 
 no copy skins allowed and even my styles
 
