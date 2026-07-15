@@ -1,6 +1,5 @@
 <div align="center">
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=GOD+VALLEY+ACCIDENT+" alt="silver">
-
 </br><div align="center">
 <img src="https://img.sanishtech.com/u/2b1a860bfb3efc7238694d40ae8dfb1e.jpg">
 
