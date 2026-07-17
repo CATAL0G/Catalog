@@ -1,15 +1,6 @@
 <div align="center">
-<img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=MONKEY+D+LUFFY+" alt="silver">
+<img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=WIP+" alt="silver">
 </br><div align="center">
-
-<p align="center">
-<img src="https://hits.sh/github.com/haidaware/hits.svg?label=meats&extraCount=12240&color=B8761A&labelColor=9B2A28"> <img alt="GitHub followers" src="https://img.shields.io/github/followers/CATAL0G?style=flat&label=nakamas&labelColor=9B2A28&color=B8761A">
-
-<img src="https://img.sanishtech.com/u/95413a57bc0ff21908966cf409377263.png">
-
-<div align="center">
-<img width="80" height="80" alt="f4056e1bd2ed5e8b49e3b6401109b527-removebg-preview" src="https://img.sanishtech.com/u/7f18be5e2f231bbad1879c47e0fc8914.png" />
-</div>
 
 .
 
@@ -20,9 +11,6 @@
 [rentry](https://rentry.co/kindatired_)
 
 no copy skins allowed and even my styles
-
-</br><div align="center">
-<img src="https://img.sanishtech.com/u/f79dc6f7403035b05b7e8c0821853d02.jpg">
 
 
 
