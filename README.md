@@ -9,6 +9,7 @@
 
 <div align="center">
 <img width="80" height="80" alt="f4056e1bd2ed5e8b49e3b6401109b527-removebg-preview" src="https://img.sanishtech.com/u/7f18be5e2f231bbad1879c47e0fc8914.png" />
+</div>
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🍖&abbreviated=true) 
 
