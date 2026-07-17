@@ -1,10 +1,10 @@
 <div align="center">
-<img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=SAINT+KILLINGHAM+" alt="silver">
+<img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=MONKEY+D+LUFFY+" alt="silver">
 </br><div align="center">
-<img src="https://img.sanishtech.com/u/be8b0b6ff406634519b29c51adff514d.png">
+<img src="https://img.sanishtech.com/u/95413a57bc0ff21908966cf409377263.png">
 
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🍀&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🍖&abbreviated=true) 
 
 [atabook](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="crownplush" src="https://img.sanishtech.com/u/feaff9deb0aa1a41b8eefd9c61ede1a5.png" /> &nbsp;&nbsp;&nbsp; [strawpage](https://httpsidkstrawpage.straw.page)
 
@@ -13,9 +13,7 @@
 no copy skins allowed and even my styles
 
 </br><div align="center">
-<img src="https://img.sanishtech.com/u/f54169eaacb3193c6812419c2770e446.gif">
-
-me when i keep changin my pfp & readme
+<img src="https://img.sanishtech.com/u/f79dc6f7403035b05b7e8c0821853d02.jpg">
 
 
 
