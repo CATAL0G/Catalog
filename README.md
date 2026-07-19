@@ -12,6 +12,13 @@
 
 no copy skins allowed and even my styles
 
+---
+
+you guys can find me in 𝚗𝚎𝚊𝚛 𝚕𝚘𝚋𝚋𝚢 𝚘𝚛 𝚘𝚗𝚎 𝙿𝚒𝚎𝚌𝚎 𝚎𝚛𝚊 if you feel lonely! you can c+h w me anytimes :) 
+
+. 
+
+lawluers, marace smth proshipper dnis
 
 
 
