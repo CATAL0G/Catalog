@@ -2,6 +2,8 @@
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=WIP+" alt="silver">
 </br><div align="center">
 
+##### <p align="center"><img src="https://img.sanishtech.com/u/1183efad27b86722088a8ecf1d645846.png" width="300" height="auto" align="center"></img></a> <br>
+
 .
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🍖&abbreviated=true) 
