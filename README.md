@@ -4,11 +4,9 @@
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/1183efad27b86722088a8ecf1d645846.png" width="300" height="auto" align="center"></img></a> <br>
 
-.
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🏆&abbreviated=true) 
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🍖&abbreviated=true) 
-
-[atabook](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="crownplush" src="https://img.sanishtech.com/u/a4f5b86e520a70b88a6d9012bcc5a100.png" /> &nbsp;&nbsp;&nbsp; [strawpage](https://httpsidkstrawpage.straw.page)
+[atabook](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="crownplush" src="https://img.sanishtech.com/u/a4f5b86e520a70b88a6d9012bcc5a100.png" /> &nbsp;&nbsp;&nbsp; [strawpage](https://httpsgoldrogerstrawpage.straw.page)
 
 [rentry](https://rentry.co/kindatired_)
 
