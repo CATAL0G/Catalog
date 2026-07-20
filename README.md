@@ -6,9 +6,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🏆&abbreviated=true) 
 
-[atabook](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="crownplush" src="https://img.sanishtech.com/u/a4f5b86e520a70b88a6d9012bcc5a100.png" /> &nbsp;&nbsp;&nbsp; [strawpage](https://httpsgoldrogerstrawpage.straw.page)
-
-[rentry](https://rentry.co/kindatired_)
+##### <p align="center"><a href="kindatired.atabook.org"><img src="https://img.sanishtech.com/u/037b25f9a9b6664774e9a2a16a2313e3.png" width="85" height="auto" align="center"></img></a><a href="https://httpsgoldrogerstrawpage.straw.page"><img src="https://img.sanishtech.com/u/98fdc2ffe58b725268ccf9aeedbcbd9e.png" width="120" height="auto" align="center"></img></a><a href="https://rentry.co/kindatired_"><img src="https://img.sanishtech.com/u/b4614d2c4dbaaf47940800e363c555e0.png" width="100" height="auto" align="center">
 
 no copy skins allowed and even my styles
 
