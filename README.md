@@ -11,6 +11,7 @@
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/8a2f56ad0f8ddcfc7728c6c9dded6215.png" width="200" height="100" align="center"></img></a> <br>
 
+ ᴡʜᴏ ᴅᴏᴇsɴ'ᴛ ʟᴏᴠᴇ ᴘᴜᴘᴘʏɪᴇs/ᴅᴏɢs 🐶🐕
 
 
 
