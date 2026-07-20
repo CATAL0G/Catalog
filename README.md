@@ -1,7 +1,5 @@
 <div align="center">
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=puppies+" alt="silver">
-<p align="center"><img src="https://img.sanishtech.com/u/9e0de37afdc00997f44b7ceb01c2bc86.png" width="100" height="auto" align="center"></img></a> <br>
-
 </br><div align="center">
  <p align="center"><img src="https://img.sanishtech.com/u/160c2c56c713adc22d683850bc9f5543.jpg" width="300" height="auto" align="center"></img></a> <br>
 
