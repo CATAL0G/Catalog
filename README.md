@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=E2A351&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=puppies+" alt="silver">
 </br><div align="center">
- <p align="center"><img src="https://img.sanishtech.com/u/160c2c56c713adc22d683850bc9f5543.jpg" width="300" height="auto" align="center"></img></a> <br>
+ <p align="center"><img src="https://img.sanishtech.com/u/59dc8b1b43f8f89bdc773e7643c9b66c.png" width="300" height="auto" align="center"></img></a> <br>
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=CB983F&style=flat&label=🐶&abbreviated=true) 
 
@@ -9,9 +9,9 @@
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/9e0de37afdc00997f44b7ceb01c2bc86.png" width="100" height="auto" align="center"></img></a> <br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/8a2f56ad0f8ddcfc7728c6c9dded6215.png" width="200" height="100" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/2bcc94e765958b12fbda028954d552dd.png" width="200" height="100" align="center"></img></a> <br>
 
- ᴡʜᴏ ᴅᴏᴇsɴ'ᴛ ʟᴏᴠᴇ ᴘᴜᴘᴘʏɪᴇs/ᴅᴏɢs 🐶🐕
+ 🐾
 
 
 
