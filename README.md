@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=FFB47F&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=puppies+" alt="silver">
+<img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=FFB47F&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=L1TTLE+LAMB+" alt="silver">
 </br><div align="center">
 
  <p align="center"><img src="https://img.sanishtech.com/u/4cbfbb394dc4a9e3c41e213e3127ffe6.png" width="400" height="100" align="center"></img></a> <br>
