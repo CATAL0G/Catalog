@@ -15,7 +15,7 @@
 
 </div>
 
-       $${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤㅤㅤㅤ
+    $${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤㅤㅤㅤ
  thank youㅤ
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
