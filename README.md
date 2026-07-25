@@ -13,9 +13,8 @@
 
 <p align="center"> $\color{#C2AD62}{\text{do not copy my skins}$ </p>ㅤㅤ
 
-</div>
-
-    $${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤㅤㅤㅤ
+$${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤ
+ㅤㅤㅤ
  thank youㅤ
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
