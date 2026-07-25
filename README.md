@@ -14,7 +14,7 @@
 <p align="center"> $\color{#C2AD62}{\text{do not copy my skins}$ </p>ㅤㅤ
 
 $${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤ
-ㅤㅤㅤ
+ㅤ
 thank youㅤ
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
 ㅤㅤㅤㅤㅤㅤ<p align="center "> \color{#C2AD62}{\text{read rentry before you ints.}$ </p>
