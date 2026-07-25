@@ -15,9 +15,7 @@
 
 $${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤ
 
-##### <p align="center"> [pt-stars](https://github.com/pt-stars)
-ㅤㅤㅤㅤㅤㅤ<p align="center ">
-
+[pt-stars](https://github.com/pt-stars)
 pretty skins
 
  \color{#C2AD62}{\text{read rentry before you ints.}$ </p>
