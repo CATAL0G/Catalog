@@ -3,7 +3,7 @@
 </br><div align="center">
  <p align="center"><img src="https://img.sanishtech.com/u/f7d5378c917ff4f43d48ce6ae1fe1597.png" width="300" height="200" align="center"></img></a> <br>
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=C2AD62&style=flat&label=LAMBS&abbreviated=true) 
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=C2AD62&style=flat&label=🥩&abbreviated=true) 
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/0b8ba3f18d866c24ec723d886da75131.png" width="100" height="90" align="center"></img></a> <br>
 
