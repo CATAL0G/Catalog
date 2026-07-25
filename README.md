@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=E7D8A9&style=flat&label=LAMBS&abbreviated=true) 
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/0b8ba3f18d866c24ec723d886da75131.png" width="100" height="100" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/0b8ba3f18d866c24ec723d886da75131.png" width="100" height="90" align="center"></img></a> <br>
 
 [新book](kindatired.atabook.org)  
 
