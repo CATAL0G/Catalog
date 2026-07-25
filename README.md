@@ -2,7 +2,7 @@
 <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=FFB47F&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=puppies+" alt="silver">
 </br><div align="center">
 
- <p align="center"><img src="https://img.sanishtech.com/u/d4e8d6fe6d8201292bc9f654f2572579.png" width="200" height="300" align="center"></img></a> <br>
+ <p align="center"><img src="https://img.sanishtech.com/u/d4e8d6fe6d8201292bc9f654f2572579.png" width="200" height="100" align="center"></img></a> <br>
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=FFB47F&style=flat&label=LAMBS&abbreviated=true) 
 
