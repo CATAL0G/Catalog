@@ -15,11 +15,11 @@
 
 </div>
 
- ㅤㅤㅤ $${\color{#C2AD62}MEATㅤ.ㅤLAMB}$$ㅤ
+ ㅤㅤㅤ $${\color{#C2AD62}MEATㅤ.ㅤLAMB}$$
+
+ thank youㅤ
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
-
-thank you
 ㅤㅤㅤㅤㅤㅤ
 <p align="center"> $\color{#C2AD62}{\text{read rentry before you ints.}$ </p>
 
