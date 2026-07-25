@@ -8,7 +8,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=FFB47F&style=flat&label=LAMBS&abbreviated=true) 
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/946e2a9a8f3639399cf210b8dd97e8f8.png" width="400" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/946e2a9a8f3639399cf210b8dd97e8f8.png" width="200" height="auto" align="center"></img></a> <br>
 
 
 
