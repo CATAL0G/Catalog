@@ -16,8 +16,11 @@
 </div>
 
  ㅤㅤㅤ $${\color{#C2AD62}MEATㅤ.ㅤLAMB}$$ㅤ
-ㅤㅤㅤㅤㅤㅤ
 
+##### <p align="center"> [pt-stars](https://github.com/pt-stars)
+
+thank you
+ㅤㅤㅤㅤㅤㅤ
 <p align="center"> $\color{#C2AD62}{\text{read rentry before you ints.}$ </p>
 
  <p align="center"><img src="https://img.sanishtech.com/u/b15da608c9b5fd20af3853400478eef2.png" width="400" height="auto" align="center"></img></a> <br>
