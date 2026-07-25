@@ -15,7 +15,7 @@
 
 </div>
 
- ㅤㅤㅤ $${\color{#C2AD62}MEATㅤ.ㅤLAMB}$$
+$${\color{#C2AD62}MEATㅤ.ㅤLAMB}$$
 
  thank youㅤ
 
