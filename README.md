@@ -19,7 +19,7 @@ $${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤ
 
 pretty skins
 
- \color{#C2AD62}{\text{read rentry before you ints.}$ </p>
+ \color{#C2AD62}{\text{read prns.cc before you ints.}$ </p>
 
  <p align="center"><img src="https://img.sanishtech.com/u/b15da608c9b5fd20af3853400478eef2.png" width="400" height="auto" align="center"></img></a> <br>
 
