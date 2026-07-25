@@ -20,7 +20,7 @@
 
 <p align="center"> $\color{#C2AD62}{\text{read rentry before you ints.}$ </p>
 
- <p align="center"><img src="https://img.sanishtech.com/u/aee779386a8dc6494f8a0f3328982bb0.png" width="400" height="auto" align="center"></img></a> <br>
+ <p align="center"><img src="https://img.sanishtech.com/u/b15da608c9b5fd20af3853400478eef2.png" width="400" height="auto" align="center"></img></a> <br>
 
 
 
