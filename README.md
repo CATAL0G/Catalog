@@ -5,11 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=C2AD62&style=flat&label=🥩&abbreviated=true) 
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/0b8ba3f18d866c24ec723d886da75131.png" width="100" height="90" align="center"></img></a> <br>
-
-[新book](kindatired.atabook.org)  
-
-[pronouns.cc](https://prns.cc/egduf) 
+[新book](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="teethplush" src="https://img.sanishtech.com/u/a36dab677f78136735ca7b0b697b3cd1.png" /> &nbsp;&nbsp;&nbsp; [pronouns.cc](https://prns.cc/egduf)
 
 <p align="center"> $\color{#C2AD62}{\text{do not copy my skins}$ </p>ㅤㅤ
 
