@@ -14,10 +14,16 @@
 
 [rentry](https://rentry.co/_pups) 
 
-<p align="center"> $\color{#E7D8A9}{\text{do not copy my skins}$ </p>ㅤㅤㅤㅤ
+<p align="center"> $\color{#E7D8A9}{\text{do not copy my skins}$ </p>ㅤㅤ
 
+</div>
 
+ ㅤㅤㅤ $${\color{#E7D8A9}MEATㅤ.ㅤLAMB}$$ㅤ
+ㅤㅤㅤㅤㅤㅤ
 
+<p align="center"> $\color{#E7D8A9}{\text{read rentry before you ints.}$ </p>
+
+ <p align="center"><img src="https://img.sanishtech.com/u/aee779386a8dc6494f8a0f3328982bb0.png" width="400" height="auto" align="center"></img></a> <br>
 
 
 
