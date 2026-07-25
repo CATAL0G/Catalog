@@ -4,7 +4,7 @@
 
  <p align="center"><img src="https://img.sanishtech.com/u/d4e8d6fe6d8201292bc9f654f2572579.png" width="400" height="100" align="center"></img></a> <br>
 
- <p align="center"><img src="https://img.sanishtech.com/u/6e07a5d6e67ec6faef8490eb0a1fed25.png" width="200" height="300" align="center"></img></a> <br>
+ <p align="center"><img src="https://img.sanishtech.com/u/6e07a5d6e67ec6faef8490eb0a1fed25.png" width="400" height="300" align="center"></img></a> <br>
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=FFB47F&style=flat&label=LAMBS&abbreviated=true) 
 
