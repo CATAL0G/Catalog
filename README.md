@@ -14,7 +14,7 @@
 
 [rentry](https://rentry.co/_pups) 
 
- ㅤㅤㅤ $${\color{#E7D8A9}. DO NOT COPY MY SKINS}$$ㅤㅤㅤㅤㅤ
+<p align="center"> $\color{#E7D8A9}{\text{do not copy my skins}$ </p>ㅤㅤㅤㅤ
 
 
 
