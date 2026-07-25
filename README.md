@@ -15,7 +15,7 @@
 
 </div>
 
-          ㅤㅤㅤ $${\color{#7a6359}meatㅤ.ㅤlambs}$$ㅤㅤㅤㅤㅤ
+           $${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤㅤㅤㅤㅤ
 
  thank youㅤ
 
