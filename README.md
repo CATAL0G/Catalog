@@ -23,7 +23,7 @@ thank you
 
 [pt-stars](https://github.com/pt-stars)
 
- <p align="center"><img src="https://img.sanishtech.com/u/63421de9ae9813fb8142522b59b1527c.gif" width="auto" height="auto" align="center"></img></a> <br>
+ <p align="center"><img src="https://img.sanishtech.com/u/63421de9ae9813fb8142522b59b1527c.gif" width="100" height="auto" align="center"></img></a> <br>
 
 
 
