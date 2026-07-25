@@ -9,7 +9,7 @@
 
 [新book](kindatired.atabook.org)  
 
-[rentry](https://rentry.co/_pups) 
+[pronouns.cc](https://prns.cc/egduf) 
 
 <p align="center"> $\color{#C2AD62}{\text{do not copy my skins}$ </p>ㅤㅤ
 
