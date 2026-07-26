@@ -7,7 +7,7 @@
 
 [新book](kindatired.atabook.org) &nbsp;&nbsp;&nbsp; <img width="50" height="50" alt="teethplush" src="https://img.sanishtech.com/u/a36dab677f78136735ca7b0b697b3cd1.png" /> &nbsp;&nbsp;&nbsp; [prns.cc](https://prns.cc/egduf)
 
-[carrds](https://meatlambs.carrd.co/
+[carrds](https://meatlambs.carrd.co/)
 
 <p align="center"> $\color{#C2AD62}{\text{do not copy my skins}$ </p>ㅤㅤ
 
