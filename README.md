@@ -9,7 +9,7 @@
 
 <p align="center"> $\color{#C2AD62}{\text{do not copy my skins}$ </p>ㅤㅤ
 
-$${\color{#C2AD62}meatㅤ.ㅤlambs}$$ㅤ
+$${\color{#C2AD62}littleㅤ.ㅤlamb}$$ㅤ
 
  \color{#C2AD62}{\text{read prns.cc before you ints.}$ </p>
 
