@@ -6,9 +6,9 @@
 
 [carrds](https://meatlambs.carrd.co/)
 
-thank you
+ thank you
 
-[pt-stars](https://github.com/pt-stars)
+ [pt-stars](https://github.com/pt-stars)
 
 
 
