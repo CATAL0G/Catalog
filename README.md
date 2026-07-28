@@ -4,8 +4,6 @@
 
 [新book](kindatired.atabook.org). [prns.cc](https://prns.cc/egduf)
 
-[carrds](https://meatlambs.carrd.co/)
-
  thank you
 
  [pt-stars](https://github.com/pt-stars)
