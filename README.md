@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=C2AD62&style=flat&label=🥩&abbreviated=true) 
 
-[新book](kindatired.atabook.org). prns.cc](https://prns.cc/egduf)
+[新book](kindatired.atabook.org). [prns.cc](https://prns.cc/egduf)
 
 [carrds](https://meatlambs.carrd.co/)
 
