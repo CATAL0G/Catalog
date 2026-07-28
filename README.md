@@ -1,13 +1,5 @@
 <p align="center"><img src="https://img.sanishtech.com/u/bd400192d3ceafbabda2fd1d03bbd812.jpg" width="300" height="200" align="center"></img></a> <br>
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=C2AD62&style=flat&label=🥩&abbreviated=true)
-
-[新book](kindatired.atabook.org). [prns.cc](https://prns.cc/egduf)
-
- thank you
-
- [pt-stars](https://github.com/pt-stars)
-
 
 
 
