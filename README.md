@@ -1,5 +1,13 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/865ccdfb9d5b7a0dae68782b60c3ace1.png" width="auto" height="300" align="center"></img></a> <br>
 
+<p align="center"> $\color{#2E3B67}{\text{jess/shanks}$ </p>
+
+p align="center"> $\color{#2E3B67}{\text{15 - Indonesian/half british}$ </p>
+
+p align="center"> $\color{#2E3B67}{\text{asexual - aroace / transgender}$ </p>
+
+ ㅤㅤㅤ $${\color{#7a6359}no copying skins allowed}$$ㅤㅤㅤㅤㅤ
+
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=2E3B67&style=flat&label=🌻&abbreviated=true)
