@@ -8,8 +8,11 @@ pretty skins
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/63bbd64ca1ed01490decef08f3751aab.png" width="200" height="auto" align="center"></img></a> <br>
 
+<p align="center"> $\color{#2E3B67}{\text{won't you die tonight for love?}$ </p>
 
+<p align="center"> $\color{#2E3B67}{\text{baby , join me in death.}$ </p>
 
+---
 
 
 
