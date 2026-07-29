@@ -6,7 +6,7 @@
 
 <p align="center"> $\color{#2E3B67}{\text{asexual - aroace / transgender}$ </p>
 
- ㅤㅤㅤ $${\color{#7a6359}no copying skins allowed}$$ㅤㅤㅤㅤㅤ
+ ㅤㅤㅤ $${\color{#2E3B67}no copying skins allowed}$$ㅤㅤㅤㅤㅤ
 
 <div align="center">
 
