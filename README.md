@@ -1,9 +1,5 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/865ccdfb9d5b7a0dae68782b60c3ace1.png" width="auto" height="300" align="center"></img></a> <br>
 
-##### <p align="center"> [pt-stars](https://github.com/pt-stars)
-<p align="center">
-pretty skins
-
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=2E3B67&style=flat&label=🌻&abbreviated=true)
@@ -16,6 +12,9 @@ pretty skins
 
 <p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
 
+##### <p align="center"> [pt-stars](https://github.com/pt-stars)
+<p align="center">
+pretty skins
 
 
 
