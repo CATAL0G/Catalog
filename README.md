@@ -4,7 +4,7 @@
 <p align="center">
 pretty skins
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/bd6f91cbd3857f64cb2cbe9c13f31832.png" width="auto" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/bd6f91cbd3857f64cb2cbe9c13f31832.png" width="auto" height="auto"
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/63bbd64ca1ed01490decef08f3751aab.png" width="200" height="auto" align="center"></img></a> <br>
 
