@@ -12,7 +12,7 @@
 
 <p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/bd6f91cbd3857f64cb2cbe9c13f31832.png" width="100" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/bd6f91cbd3857f64cb2cbe9c13f31832.png" width="400" height="400" align="center"></img></a> <br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
 <p align="center">
