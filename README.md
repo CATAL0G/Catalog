@@ -4,9 +4,7 @@
 <p align="center">
 pretty skins
 
-</div>
-
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=C2AD62&style=flat&label=🌻&abbreviated=true)
+##### <p align="center"><img src="https://img.sanishtech.com/u/75442685371cb0ae6a04b03a882f1635.png" width="auto" height="auto" align="center"></img></a> <br>
 
 
 
