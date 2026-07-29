@@ -12,7 +12,7 @@ pretty skins
 
 <p align="center"> $\color{#2E3B67}{\text{baby , join me in death.}$ </p>
 
----
+<p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
 
 
 
