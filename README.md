@@ -12,7 +12,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=2E3B67&style=flat&label=🌻&abbreviated=true)
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/63bbd64ca1ed01490decef08f3751aab.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/025bbacb84a785403f6773c0e2636224.png" width="200" height="auto" align="center"></img></a> <br>
 
 <p align="center"> $\color{#2E3B67}{\text{won't you die tonight for love?}$ </p>
 
