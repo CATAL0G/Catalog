@@ -14,9 +14,9 @@
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/4e131c10057f7760b3fe786003cebae2.png" width="200" height="auto" align="center"></img></a> <br>
 
-<p align="center"> $\color{#DF7D2D}{\text{i miss you more than anything}$ </p>
+<p align="center"> $\color{#DF7D2D}{\text{yamato my MAN}$ </p>
 
-<p align="center"> $\color{#D03272}{\text{where have you been?}$ </p>
+<p align="center"> $\color{#D03272}{\text{TRANSPHOHIC DNI🤮}$ </p>
 
 <p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
 
