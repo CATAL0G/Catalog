@@ -34,13 +34,16 @@ w2i  , always afk
 
 $${\color{#2E3B67}in another life?}$$ㅤ
 
-p align="center"> ねえ、私の唇にキスしてくれない？$\color{#2E3B67}{\text{.}$ </p>ㅤㅤㅤㅤ
+p align="center"> 
+ねえ、私の唇にキスしてくれない？$\color{#2E3B67}{\text{.}$ </p>ㅤㅤㅤㅤ
 
 $${\color{#2E3B67}そして、船乗りのように私を愛して.}$$ㅤㅤㅤㅤㅤ
 
-p align="center"> $\color{#2E3B67}{\text{そして、その味を知ると}$ </p>
+p align="center"> 
+$\color{#2E3B67}{\text{そして、その味を知ると}$ </p>
 
-p align="center"> $\color{#2E3B67}{\text{私の「味」って何なのか、教えてくれますか？}$ </p>
+p align="center"> 
+$\color{#2E3B67}{\text{私の「味」って何なのか、教えてくれますか？}$ </p>
 
 $${\color{#2E3B67}私は神を信じていません。}$$ㅤㅤㅤㅤㅤ
 
