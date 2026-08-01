@@ -33,8 +33,7 @@ w2i  , always afk
 ##### <p align="center"><img src="https://img.sanishtech.com/u/89bb009c3d0572b90c188605bc53b658.png" width="300" height="auto" align="center"></img></a> <br>
 
 $${\color{#2E3B67}in another life?}$$ㅤ
- 
-ねえ、私の唇にキスしてくれない？$\color{#2E3B67}{\text{.}$ </p>ㅤㅤㅤㅤ
+ ねえ、私の唇にキスしてくれない？$\color{#2E3B67}{\text{.}$ </p>ㅤㅤㅤㅤ
 
 $${\color{#2E3B67}そして、船乗りのように私を愛して.}$$ㅤㅤㅤㅤㅤ
  
