@@ -26,7 +26,7 @@
 <p align="center">
 pretty skins
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/7f16b3f03ed110059dde42f5d427cad2.gif" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/e0be3bafabd9b3f876dd99405570e801.gif" width="200" height="auto" align="center"></img></a> <br>
 
 w2i  , always afk
 
