@@ -35,7 +35,7 @@ prettiest gh
 
 w2i  , always afk
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/89bb009c3d0572b90c188605bc53b658.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/026272cd37d7bdeddc1428c87fa3eefe.png" width="300" height="auto" align="center"></img></a> <br>
 
 ねえ、私の唇にキスしてくれない？$\color{#D03272}{\text{.}$ㅤㅤㅤㅤ
 
