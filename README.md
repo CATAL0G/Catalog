@@ -26,6 +26,11 @@
 <p align="center">
 pretty skins
 
+##### <p align="center"> [pt-fashion](https://github.com/pt-fashion)
+<p align="center">
+
+prettiest gh
+
 ~
 
 w2i  , always afk
