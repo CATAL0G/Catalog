@@ -16,7 +16,7 @@
 
 <p align="center"> $\color{#DF7D2D}{\text{yamato my MAN}$ </p>
 
-<p align="center"> $\color{#D03272}{\text{TRANSPHOHIC DNI🤮}$ </p>
+<p align="center"> $\color{#D03272}{\text{TRANSPHOHIC DNI}$ </p>
 
 <p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
 
