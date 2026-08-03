@@ -10,11 +10,11 @@ $${\color{#B9573C}he}$$ $${\color{#C4B676}or}$$ $${\color{#708E99}they}$$ ㅤ $$
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
 <p align="center">
-pretty skins
+$${\color{#708E99}pretty}$$ $${\color{#C4B676}skins}$$ $${\color{#BB9573C}thank}$$ ㅤ $${\color{#C4B676}you}$$ $${\color{#B9573C}♡}$$ </br>
 
 ##### <p align="center"> [pt-fashion](https://github.com/pt-fashion)
 <p align="center">
-prettiest gh
+$${\color{#B9573C}prettiest}$$ $${\color{#C4B676}gh}$$ $${\color{#708E99}thank}$$ ㅤ $${\color{#C4B676}you}$$ $${\color{#B9573C}♡}$$ </br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/6b7c667c9df38592f277f05d082746c3.png" width="200" height="auto" align="center"></img></a> <br>
 
