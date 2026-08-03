@@ -6,7 +6,7 @@ $${\color{#B9573C}no}$$ $${\color{#708E99}copying}$$ $${\color{#C4B676}skins}$$ 
 
 $${\color{#B9573C}he}$$ $${\color{#C4B676}or}$$ $${\color{#708E99}they}$$ ㅤ $${\color{#C4B676}◆}$$ $${\color{#B9573C}aroace}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/2e96a30553f832f7a07307c54214ffd9.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/2e96a30553f832f7a07307c54214ffd9.png" width="300" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
 <p align="center">
@@ -16,7 +16,7 @@ $${\color{#708E99}pretty}$$ $${\color{#C4B676}skins}$$ $${\color{#BB9573C}thank}
 <p align="center">
 $${\color{#B9573C}prettiest}$$ $${\color{#C4B676}gh}$$ $${\color{#708E99}thank}$$ ㅤ $${\color{#C4B676}you}$$ $${\color{#B9573C}♡}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/6b7c667c9df38592f277f05d082746c3.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/6b7c667c9df38592f277f05d082746c3.png" width="300" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/bf2dc07669c23d2f0d059c7a439d0875.png" width="200" height="auto" align="center"></img></a> <br>
 
