@@ -10,7 +10,6 @@ pretty skins
 
 ##### <p align="center"> [pt-fashion](https://github.com/pt-fashion)
 <p align="center">
-
 prettiest gh
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/6b7c667c9df38592f277f05d082746c3.png" width="200" height="auto" align="center"></img></a> <br>
