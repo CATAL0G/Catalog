@@ -1,6 +1,10 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/1dfdc4706bfa54f9681ea3df794e623b.png" width="auto" height="200" align="center"></img></a> <br>
 
-<p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>p
+$${\color{#C4B676}jess}$$ $${\color{#708E99}or}$$ $${\color{#C4B676}sabo}$$ ㅤ $${\color{#B9573C}~}$$ $${\color{#708E99}multifandoms~}$$ </br>
+
+$${\color{#B9573C}no}$$ $${\color{#708E99}copying}$$ $${\color{#C4B676}skins}$$ ㅤ $${\color{#708E99}allowed}$$ $${\color{#C4B676}◆}$$ </br>
+
+$${\color{#B9573C}he}$$ $${\color{#C4B676}or}$$ $${\color{#708E99}they}$$ ㅤ $${\color{#C4B676}◆}$$ $${\color{#B9573C}aroace}$$ </br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/2e96a30553f832f7a07307c54214ffd9.png" width="200" height="auto" align="center"></img></a> <br>
 
