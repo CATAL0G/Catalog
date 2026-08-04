@@ -24,5 +24,6 @@ $${\color{#C4B676}sign}$$ $${\color{#708E99}my}$$ $${\color{#C4B676}ata~}$$ ㅤ 
 
 <p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
 
+##### <p align="center"><img src="https://img.sanishtech.com/u/cfe46ceab85c418d24d34fc1fe9269fa.jpg" width="300" height="auto" align="center"></img></a> <br>
 
 
