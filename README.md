@@ -26,4 +26,8 @@ $${\color{#C4B676}sign}$$ $${\color{#708E99}my}$$ $${\color{#C4B676}ata~}$$ ㅤ 
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/cfe46ceab85c418d24d34fc1fe9269fa.jpg" width="300" height="auto" align="center"></img></a> <br>
 
+$${\color{#25A47A}my}$$ $${\color{#C2BC92}other}$$ $${\color{#8AAF4B}gh}$$ ㅤ $${\color{#C2BC92}acc}$$ $${\color{#25A47A}↓}$$ </br>
+
+##### <p align="center"> [.@URAHARA-KI](https://github.com/URAHARA-KI)
+<p align="center">
 
