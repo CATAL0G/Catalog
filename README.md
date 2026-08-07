@@ -22,10 +22,6 @@ $${\color{#B9573C}prettiest}$$ $${\color{#C4B676}gh}$$ $${\color{#708E99}thank}$
 
 $${\color{#C4B676}so}$$ $${\color{#708E99}much}$$ $${\color{#C4B676}happening}$$ ㅤ $${\color{#708E99}.}$$ $${\color{#B9573C}right?}$$ </br>
 
-<p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
-
-##### <p align="center"><img src="https://img.sanishtech.com/u/cfe46ceab85c418d24d34fc1fe9269fa.jpg" width="300" height="auto" align="center"></img></a> <br>
-
 $${\color{#25A47A}my}$$ $${\color{#C2BC92}other}$$ $${\color{#8AAF4B}gh}$$ ㅤ $${\color{#C2BC92}acc}$$ $${\color{#25A47A}↓}$$ </br>
 
 ##### <p align="center"> [.@URAHARA-KI](https://github.com/URAHARA-KI)
