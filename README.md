@@ -1,6 +1,6 @@
-##### <p align="center"><img src="https://img.sanishtech.com/u/1dfdc4706bfa54f9681ea3df794e623b.png" width="auto" height="200" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/03112675c62a1fb747094604c9d146a5.png" width="auto" height="200" align="center"></img></a> <br>
 
-$${\color{#C4B676}jess}$$ $${\color{#708E99}or}$$ $${\color{#C4B676}sabo}$$ ㅤ $${\color{#B9573C}~}$$ $${\color{#708E99}multifandoms}$$ </br>
+$${\color{#C4B676}jess}$$ $${\color{#708E99}or}$$ $${\color{#C4B676}urahara}$$ ㅤ $${\color{#B9573C}~}$$ $${\color{#708E99}multifandoms}$$ </br>
 
 $${\color{#B9573C}no}$$ $${\color{#708E99}copying}$$ $${\color{#C4B676}skins}$$ ㅤ $${\color{#708E99}allowed}$$ $${\color{#C4B676}◆}$$ </br>
 
@@ -18,9 +18,9 @@ $${\color{#B9573C}prettiest}$$ $${\color{#C4B676}gh}$$ $${\color{#708E99}thank}$
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/6b7c667c9df38592f277f05d082746c3.png" width="300" height="auto" align="center"></img></a> <br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/bf2dc07669c23d2f0d059c7a439d0875.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/d630bf9945b79e607c985cd72ed35b53.png" width="200" height="auto" align="center"></img></a> <br>
 
-$${\color{#C4B676}sign}$$ $${\color{#708E99}my}$$ $${\color{#C4B676}ata~}$$ ㅤ $${\color{#708E99}♡}$$ $${\color{#B9573C}oke?}$$ </br>
+$${\color{#C4B676}so}$$ $${\color{#708E99}much}$$ $${\color{#C4B676}happening}$$ ㅤ $${\color{#708E99}.}$$ $${\color{#B9573C}right?}$$ </br>
 
 <p align="center"> <a href=https://kindatired.atabook.org/>@新𝖻𝗈𝗈𝗄</a>
 
