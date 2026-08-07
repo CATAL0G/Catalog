@@ -8,8 +8,6 @@ $${\color{#656E00}no}$$ $${\color{#8C7806}copying}$$ $${\color{#C656E00}skins}$$
 
 $${\color{#8C7806}he}$$ $${\color{#62240c}or}$$ $${\color{#8C7806}they}$$ ㅤ $${\color{#656E00}◆}$$ $${\color{#8C7806}aroace}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/89def8d55d72a2f97092834ec7654718.png" width="300" height="auto" align="center"></img></a> <br>
-
 <div align="center">
   <table border="0">
 
