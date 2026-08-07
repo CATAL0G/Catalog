@@ -1,5 +1,3 @@
-##### <p align="center"><img src="https://img.sanishtech.com/u/89def8d55d72a2f97092834ec7654718.png" width="300" height="auto" align="center"></img></a> <br>
-
 ##### <p align="center"><img src="https://img.sanishtech.com/u/03112675c62a1fb747094604c9d146a5.png" width="auto" height="200" align="center"></img></a> <br>
 
 </div>
@@ -32,5 +30,3 @@ $${\color{#8C7806}my}$$ $${\color{#656E00}other}$$ $${\color{#8C7806}gh}$$ ㅤ $
 
 ##### <p align="center"> [.@URAHARA-KI](https://github.com/URAHARA-KI)
 <p align="center">
-
-##### <p align="center"><img src="https://img.sanishtech.com/u/0b0b7dcd8f9e01344e207dcd6d16efb4.png" width="300" height="auto" align="center"></img></a> <br>  
