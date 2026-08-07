@@ -16,9 +16,9 @@ $${\color{#708E99}pretty}$$ $${\color{#C4B676}skins}$$ $${\color{#BB9573C}thank}
 <p align="center">
 $${\color{#B9573C}prettiest}$$ $${\color{#C4B676}gh}$$ $${\color{#708E99}thank}$$ ㅤ $${\color{#C4B676}you}$$ $${\color{#B9573C}♡}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/0b0b7dcd8f9e01344e207dcd6d16efb4.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/0b0b7dcd8f9e01344e207dcd6d16efb4.png" width="300" height="auto" align="center"></img></a> <br>  
 
-~
+</div>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/d630bf9945b79e607c985cd72ed35b53.png" width="400" height="auto" align="center"></img></a> <br>
 
