@@ -2,6 +2,8 @@
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/03112675c62a1fb747094604c9d146a5.png" width="auto" height="200" align="center"></img></a> <br>
 
+</div>
+
 $${\color{#8C7806}jess}$$ $${\color{#656E00}or}$$ $${\color{#8C7806}urahara}$$ ㅤ $${\color{#B656E00}~}$$ $${\color{#8C7806}multifandoms}$$ </br>
 
 $${\color{#656E00}no}$$ $${\color{#8C7806}copying}$$ $${\color{#C656E00}skins}$$ ㅤ $${\color{#8C7806}allowed}$$ $${\color{#656E00}◆}$$ </br>
