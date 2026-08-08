@@ -2,5 +2,5 @@
 
 hello everyone, dis is jess aka CATAL0G. 
 i'm not gonna use dis gh from now on bcs i keep remaking or redoing my gh and it makes me headache. 
-you guys can unfollow me in dis gh acc and possibly inactive for using dis gh and yea. 
+you guys can unfollow me in dis gh acc if you want and possibly inactive for using dis gh and yea. 
 so i hope you guys stay healthy oke byi.....!!!
